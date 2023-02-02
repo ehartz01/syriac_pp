@@ -3,7 +3,7 @@ Contact ehartz01@gmail.com for support.
 
 **Privacy Policy**
 
-Ethan Hartzell built the Learn Syriac Script app as an Ad Supported app. This SERVICE is provided by Ethan Hartzell at no cost and is intended for use as is.
+Ethan Hartzell built the Learn Syriac Script app as an Ad Supported app. This SERVICE is provided by Ethan Hartzell at no cost and is intended for use as is. This policy also applies to Iraqi Arabic Dictionary, Egypto Contexto, Yemeni Arabic Dictionary, Tachelhit-English Dictionary, Libyan Arabic Dictionary, and Gulf Arabic Dictionary.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
